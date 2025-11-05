@@ -5,6 +5,6 @@ Tao is not a religion, it is a Way; a Way of seeing things and a Way of being.
 Whether you are religious or not, I hope that you enjoy reading the wisdom of Tao. 
 And I hope that Tao brings you peace, healing and all the things that you wish for.
 You can read Tao here:
-https://njeriolenkere.github.io/taoteching/
+
 
 Happy Reads!☯️
